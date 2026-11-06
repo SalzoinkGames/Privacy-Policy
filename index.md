@@ -78,17 +78,17 @@ If you opt-out of receiving our Direct Marketing Communications, we may still co
 
 ## **Do we disclose your personal information overseas?** 
 
-<mark>Any personal information collected by us may be held at a destination outside Australia, most</mark> commonly on servers for cloud based applications. 
+Any personal information collected by us may be held at a destination outside Australia, most commonly on servers for cloud based applications. 
 
-<mark>By submitting your personal information to us, you expressly consent to the disclosure, transfer, storing or processing of your personal information outside of Australia. In providing this consent, you understand and acknowledge that countries outside of Australia do not always have the same</mark> privacy protection obligations as Australia in relation to personal information. 
+By submitting your personal information to us, you expressly consent to the disclosure, transfer, storing or processing of your personal information outside of Australia. In providing this consent, you understand and acknowledge that countries outside of Australia do not always have the same privacy protection obligations as Australia in relation to personal information. 
 
-<mark>We take such steps as are reasonable in the circumstances to ensure that any recipients of your personal information outside of Australia are bound by privacy principles equivalent to those</mark> contained within the Privacy Act or agree to meet the requirements of the Privacy Act. 
+We take such steps as are reasonable in the circumstances to ensure that any recipients of your personal information outside of Australia are bound by privacy principles equivalent to those contained within the Privacy Act or agree to meet the requirements of the Privacy Act. 
 
-<mark>If you do not agree to the transfer of your personal information outside of Australia, please either do not provide us with your personal information or contact us via the details set out at the end of this document.</mark> 
+If you do not agree to the transfer of your personal information outside of Australia, please either do not provide us with your personal information or contact us via the details set out at the end of this document.
 
 ## **Can you deal with us anonymously?** 
 
-<mark>Providing us with your personal information is optional and you may be able to remain anonymous or use a pseudonym when making enquiries with us. You must not impersonate any person.</mark> 
+Providing us with your personal information is optional and you may be able to remain anonymous or use a pseudonym when making enquiries with us. You must not impersonate any person.
 
 ## **How do we hold your information?** 
 
