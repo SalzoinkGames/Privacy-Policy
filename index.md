@@ -1,5 +1,3 @@
-# **Privacy Policy** 
-
 ## **Our commitment to privacy** 
 
 Salzoink Games ABN 55 341 931 026 is committed to managing personal information in alignment with the Australian Privacy Principles under the Privacy Act 1988 (Cth) ( **Privacy Act** ). 
